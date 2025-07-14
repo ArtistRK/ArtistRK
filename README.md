@@ -48,5 +48,5 @@
 </p>
 
 - 💬 Ask me about **DevOps**
-- 📫 How to reach me **[rishabkanoujia308@gmail.com](mailto:rishabkanoujia308@gmail.com)**
-- ⚡ Fun fact **I'm a an Artist secretly**
+- 📫 How to reach me **[rishabkanoujia316@gmail.com](mailto:rishabkanoujia316@gmail.com)**
+- ⚡ Fun fact **I'm an Artist secretly**
